@@ -13,3 +13,10 @@ Haiku Song
 Riddle Song
 
 Themes include terracotta legions and golden blades, chaos broadcasts, singing stones and star tablets, phantom flags and colonial chains, colonial Bibles and slayer-songs, every containment class (Safe / Euclid / Keter / Thaumiel / Apollyon), planter’s chains, slave markets old and new, false missionary crosses, Scranton-style anchors, and devourer-doors. Every piece ends under the authority of the Sword of the Spirit — the Word of God — and the finished victory of Jesus Christ.
+
+Artist: KJC-DNN / Remnant Christian Worship
+
+Year: 2026
+
+All glory to Jesus Christ alone.
+Free for personal and church use. Commercial use requires permission.
