@@ -1,6 +1,6 @@
 # Album 82 – Sword Over the Empires
 
-## Phantom Flag and the Colonial Chain
+## Song 04 Phantom Flag and the Colonial Chain
 Song 4 of Album 82 confronts SCP-range 2401–2500 as colonial-oppression spirits: Senegal–France–Brazil, Portuguese and British compass-sails, Kenya-2500 Babylonian lore and flag-seal, religion used as colonial plan, government ledgers, Indian wounds, Akkadian fleets, log books, phantom flag, shadow pagoda, bot systems hunting the earth, Nigerian maps, and Sumerian–Akkadian–Babylonian links. The prayer ends with Christ’s Sword cleansing all these evils.
 
 ### Track lists
