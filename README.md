@@ -38,7 +38,7 @@ Every Class Under One Sword
 
 Planter’s Chain and the Missionary’s Cross
 
-### Details:
+### Content info:
 
 # Song 1 — Terracotta Legions and the Golden Blade
 Story
